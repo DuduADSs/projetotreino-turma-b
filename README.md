@@ -1,7 +1,13 @@
-# Eduardo Luciano da Silva Junior
+# Eduardo Junior
+---
+Endereço: XXXXXX - Marilia - SP
 
- ---
+---
 
  Experiencia:
  
  Telecomunicação
+
+---
+
+
